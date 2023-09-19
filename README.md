@@ -1,4 +1,4 @@
-### Hi there 👋
+### Sou Jogador de Nba2k, Fifa e etc...
 
 <!--
 **Anndrey7/Anndrey7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
